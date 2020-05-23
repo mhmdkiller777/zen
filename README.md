@@ -1,0 +1,2 @@
+# zen
+no think
